@@ -219,4 +219,4 @@ Esta Política de Privacidad se rige por las leyes de Bolivia y las regulaciones
 
 **Who's In - Organiza tus eventos con confianza**
 
-© 2024 Roberto Callizaya. Todos los derechos reservados.
+© 2025 Christian Ledezma. Todos los derechos reservados.
