@@ -198,8 +198,8 @@ Puede eliminar su cuenta en cualquier momento desde la configuración de la apli
 
 Si tiene preguntas sobre esta Política de Privacidad, puede contactarnos:
 
-**Por email:** calor_software@gmail.com
-**Desarrollador:** Roberto Callizaya
+**Por email:** chris.ledezma.s@gmail.com
+**Desarrollador:** Christian Ledezma
 
 **Tiempo de respuesta estimado:** 48-72 horas hábiles
 
