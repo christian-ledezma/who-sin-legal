@@ -128,7 +128,7 @@ Usted tiene derecho a:
 - **Oponerse** al procesamiento de sus datos
 - **Retirar consentimiento** sin afectar la legalidad del procesamiento previo
 
-Para ejercer estos derechos, contáctenos en: **calor_software@gmail.com**
+Para ejercer estos derechos, contáctenos en: **chris.ledezma.s@gmail.com**
 
 ---
 
